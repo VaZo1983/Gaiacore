@@ -1,0 +1,5 @@
+# Karakterek
+
+- Főhős:
+- Antagonista:
+- Mellékszereplők:
